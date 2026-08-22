@@ -1,7 +1,7 @@
 <p align="center">
-<img width="440" height="267" alt="image" src="https://github.com/user-attachments/assets/513b33f6-819b-4543-abc9-ff19f73d8fb0" />
+<img width="716" height="407" alt="Untitled34_20260721160856" src="https://github.com/user-attachments/assets/d73553ab-c861-4481-be98-479a0637fc7a" />
 
-  <p align="center"> i Love lizzy x rebecca I Really Like them
+
 <!--
 **ghouIie/ghouIie** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
