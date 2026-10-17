@@ -1,3 +1,3 @@
-<img width="261" height="239" alt="image" src="https://github.com/user-attachments/assets/961c7c10-a6b5-48f2-989c-4b1a72c9608d" />
+<img width="491" height="304" alt="I&#39;m Fine With My Divorce, Bc I Have _Apple Friends _" src="https://github.com/user-attachments/assets/70405590-3061-4cb4-8cf2-d307d6a3b522" />
 
 [click me, i'm not malware](https://guns.lol/rebs)
