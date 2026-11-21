@@ -23,7 +23,7 @@
 <div align='center'> 
 
 
- ![]() ![]() ![]()*[guns.lol](https://guns.lol/rebs)*  ![]() ![]() ![]() ![]() ![]() *[quick links](https://txto.eu.org/liz)*
+ ![]() ![]() ![]()[guns.lol](https://guns.lol/rebs)  ![]() ![]() ![]() ![]() ![]() [quick links](https://txto.eu.org/liz)
 
 
   ![]() 
