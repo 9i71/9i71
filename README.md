@@ -15,9 +15,15 @@
  
 <img width="282" height="144" alt="image" src="https://github.com/user-attachments/assets/bfd92fa5-7619-463e-aa38-3e8deb6a2eed" />
 
+<br>
+<br>
+
+
+
 <div align='center'> 
 
- ![]() ![]() ![]()[guns.lol](https://guns.lol/rebs)  ![]() ![]() ![]() ![]() ![]() [quick links](https://txto.eu.org/liz)
+
+ ![]() ![]() ![]()*[guns.lol](https://guns.lol/rebs)*  ![]() ![]() ![]() ![]() ![]() *[quick links](https://txto.eu.org/liz)*
 
 
   ![]() 
