@@ -11,4 +11,4 @@
 
 <div align='center'> 
 
- ![]() ![]() ![]()[guns.lol](https://guns.lol/rebs)  ![]() ![]() ![]() ![]() ![]() [quick links](https://rentry.org/-kevford)
+ ![]() ![]() ![]()[guns.lol](https://guns.lol/rebs)  ![]() ![]() ![]() ![]() ![]() [quick links](https://txto.eu.org/liz)
