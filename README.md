@@ -13,7 +13,7 @@
   </a>
 <br>
  
-<img width="261" height="256" alt="image" src="https://github.com/user-attachments/assets/433aadc8-1e54-481e-a0f9-8e1f1d19dc74" />
+<img width="291" height="226" alt="image" src="https://github.com/user-attachments/assets/433aadc8-1e54-481e-a0f9-8e1f1d19dc74" />
 
 
 
